@@ -5,6 +5,7 @@
 - 📫 How to reach me ...email djay65877@gmail.com 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...7870118573:AAF8LJWRzzHQXLGeyCyz8Sn7A--nnKCJknQ
+- t.me/Daltonj3
 
 <!---
 Eno70236/Eno70236 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
